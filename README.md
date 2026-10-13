@@ -210,4 +210,4 @@ You can report any bugs or issues through our official support channels availabl
 Don’t miss the chance to join the 303 Squadron and become a legendary fighter pilot! Download your free copy today!
 
 ---
-**Last updated:** 2026-10-13 13:31:09 UTC
+**Last updated:** 2026-10-13 20:03:45 UTC
